@@ -14,10 +14,10 @@ So we put useful, clearly branded answers where the questions are being asked, t
 
 ## What we do
 
-- **[Organic Content](https://visibilitygecko.com/services)**, $1,799/month. A subreddit in your brand's name, built and run by Alek. A thread for every buying question your customers ask, titled the way they'd ask ChatGPT. AI citations tracked in Promptwatch and reported monthly.
-- **[Paid Ads](https://visibilitygecko.com/services)**, $2,799/month plus ad spend. Everything in Organic Content, plus Reddit Ads planned, run and optimised alongside the organic work. Target: 500K impressions and 50 conversions a month, split between organic and paid.
+- **[Organic Content](https://visibilitygecko.com/services)**, $999/month. A subreddit in your brand's name, built and run by Alek. A thread for every buying question your customers ask, titled the way they'd ask ChatGPT. Up to 40 comments a month in the subreddits your buyers already read. AI citations tracked in Promptwatch and reported monthly.
+- **[Paid Ads](https://visibilitygecko.com/services)**, $1,699/month plus ad spend. Everything in Organic Content, plus Reddit Ads planned, run and optimised alongside the organic work.
 
-Every engagement is baselined on day one: Reddit views, branded mentions, Reddit referral traffic, and how often AI answers name you. If none of it has moved by day 90, you get your money back and keep every account, post and subreddit we built. Month-to-month, with three months recommended.
+Every engagement is baselined on day one: Reddit views, branded mentions, Reddit referral traffic, and how often AI answers name you. Monthly reports measure against it. Month-to-month, with three months recommended.
 
 ## How we work
 
